@@ -6,7 +6,7 @@ there were freaking attacking the network or something.
 
 They work in Sensato Cyber security and DarkMatter2bd LLC
 
-(these hackers is trying to use company's orignal name to idenitiy swap)
+(these hackers is trying to use company's orignal name to idenitiy swap)----> a good thing. curiously 
 
 # plot a guassian event graph where normal events are abnormal and outliters are abnormal(my freaking spells error are my idenity signature YOLO)
 
